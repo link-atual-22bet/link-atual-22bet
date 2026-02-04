@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="" width="800" />
+  <img src="https://magicclick.partners/assets/images/22bet-logo-other.png" width="350" />
 </p>
 
 <h1 align="center">link de bônus da 22bet</h1>
